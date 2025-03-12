@@ -11,9 +11,9 @@
 
 - 👯 I’m looking to collaborate on **Future Gen AI and NLP projects**
 
-- 📫 How to reach me **tanay.singh2013@gmail.com**
+- 📫 How to reach me **tanay.singh2013@gmail.com** or call me on **🇨🇦 +1(437) 322 9396**
 
-- ⚡ Fun fact **I am also a black belt in Martial Arts, a budding snooker player and an amateur badminton freak**
+- ⚡ Fun fact **I am also a black belt in Martial Arts, a budding snooker player and an okay-sih badminton player**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
